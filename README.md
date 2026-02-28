@@ -42,4 +42,6 @@ Aspiring Data Analyst with a strong foundation in IT, seeking opportunities to a
 4. Team Collaboration
 5. Time Management
 
-6. 
+## Conncet with me
+1. Linkdin : https://www.linkedin.com/in/krish-lunagariya-75569831a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+2. Email   : krishlunagariya303@gmail.com
